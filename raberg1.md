@@ -1,5 +1,5 @@
-Rob Berg-  Brenda Remess
+Rob Berg, Roscoe, Brenda Remess
 
-Albert Grannis Lane Technical College Preparatory High School - Lane Tech High School
+Albert Grannis Lane Technical College Preparatory High School, None ya high, Lane Tech High School
 
-Pita Chips and Hummus - Oranges 
+Pita Chips and Hummus oreos Oranges
